@@ -17,5 +17,5 @@
 
 ![image](https://github.com/LeeMinGyu23/-/assets/117800561/2915f9e9-eb0e-4d05-a92f-f6afd569e890)
 
-![image](https://github.com/LeeMinGyu23/-/assets/117800561/b5244005-4c5e-47b6-826c-77173fe1382d)
+![image](https://github.com/LeeMinGyu23/-/assets/117800561/d1bfa883-0f27-4126-843d-950832d4a036)
 
